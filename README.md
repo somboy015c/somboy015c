@@ -1,5 +1,6 @@
 ### Hi there 👋
-
+Are you looking for a way to use technological advancement to solve your real time problems?
+Trust me you are in the right place at the rihgt time😄, For tech enquries contact: mahmudshamsudeen@gmail.com, +2348106029359. While there is problem at hand the need for sustainable solutions are also evident, Looking farward to help.
 <!--
 **somboy015c/somboy015c** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
